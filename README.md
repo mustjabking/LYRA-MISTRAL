@@ -1,6 +1,6 @@
 # TinyLlama AI Agent
 
 ### 🚀 Live Demo (Auto-Updated Every 6 Hours)
-**Active URL:** [https://extraction-keeps-redhead-thrown.trycloudflare.com](https://extraction-keeps-redhead-thrown.trycloudflare.com)
+**Active URL:** [https://customs-quote-operating-studio.trycloudflare.com](https://customs-quote-operating-studio.trycloudflare.com)
 
-_Last Updated: Fri Oct 23 04:11:22 UTC 2026_
+_Last Updated: Fri Oct 23 11:20:30 UTC 2026_
